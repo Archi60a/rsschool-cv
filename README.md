@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Archi60a.github.io/rsschool-cv/
